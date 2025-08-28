@@ -7,11 +7,10 @@
 </p>
  <p align="center"> My name is Soap!
  </p>
- <p align="center>
+ <p align="center">
    (Also known as the Knight Of Docks)
    </p>
-   <p align="center"> 
-   Please check out my SpaceHey for more info!
+   <p align="center"> Please check out my SpaceHey for more info!
  </p> 
  <p align="center">
  OR
