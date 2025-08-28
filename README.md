@@ -17,6 +17,9 @@
  </p>
  <p align="center"> Sign my ATABook!
  </p>
+ <p align="center">
+  <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
+</p>
  
  
    
