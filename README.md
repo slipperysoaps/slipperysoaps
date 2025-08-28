@@ -20,6 +20,6 @@
  <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
- ![](https://komarev.com/ghpvc/?username=slipperysoaps&color=blue&label=SoapEnjoyers+counted)
+![](https://komarev.com/ghpvc/?username=slipperysoaps&color=blueviolet&label=soap+enjoyers)
  
    
