@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
- 
+![](https://komarev.com/ghpvc/?username=slipperysoaps) 
 <p align="center">
   HELLO!
 </p>
@@ -20,6 +20,6 @@
  <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
-![](https://komarev.com/ghpvc/?username=slipperysoaps)
+
  
    
