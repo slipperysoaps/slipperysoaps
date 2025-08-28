@@ -19,7 +19,7 @@
  </p>
  <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
-</p>
-
+ </p>
+ ![](https://komarev.com/ghpvc/?username=slipperysoaps&label=Soap+Enjoyers)
  
    
