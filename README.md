@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=gweystars&color=blueviolet&label=★sheepies+counted)
 <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
