@@ -23,7 +23,5 @@
  <p align="center">
   <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
  </p>
-<p align="center">
-  <img src="[https://images.artfight.net/character/WQqYivYyswELcR739fyOqym9dIpQiECXEXyA9PUMfb7npWf9Vtru05JeHhzE.png?t=1756492749](https://scontent-mia3-1.cdninstagram.com/v/t1.15752-9/540471418_730993993271316_7384165017729306431_n.jpg?_nc_cat=111&ccb=1-7&_nc_sid=0024fc&_nc_ohc=k89J9RSgS2kQ7kNvwFac9mG&_nc_oc=Admaz7Gc2b0r0GRFIV6lfpXRYCO2niu0r-8yPClr5b9M8gUGc0ZBvE5BoO90lAqfvLA&_nc_zt=23&_nc_ht=scontent-mia3-1.cdninstagram.com&oh=03_Q7cD3AHBUCzmIeaXrFSZg2yLdVVSXE-2uoDCNU9TD5ru7FYIew&oe=68D99BF5)">
-</p>
+
 
