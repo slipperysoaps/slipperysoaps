@@ -2,7 +2,6 @@
   <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
-
 <p align="center">
   HELLO!
 </p>
