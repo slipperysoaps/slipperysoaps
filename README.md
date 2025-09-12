@@ -7,7 +7,7 @@
 <p align="center">
   HELLO!
 </p>
-<p align="center"> My name is Soap!
+<p align="center"> Ｍｙ ｎａｍｅ ｉｓ Ｓｏａｐ!
  </p>
  <p align="center">
    (Also known as the Knight Of Docks)
