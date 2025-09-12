@@ -10,13 +10,13 @@
 <p align="center"> Ｍｙ ｎａｍｅ ｉｓ Ｓｏａｐ!
  </p>
  <p align="center">
-   (Also known as the Knight Of Docks)
+   (Ａｌｓｏ ｋｎｏｗｎ ａｓ ｔｈｅ Ｋｎｉｇｈｔ Ｏｆ Ｄｏｃｋｓ)
    </p>
-   <p align="center"> Please check out my SpaceHey for more info!
+   <p align="center"> Ｐｌｅａｓｅ ｃｈｅｃｋ ｏｕｔ ｍｙ 𝑺𝒑𝒂𝒄𝒆𝑯𝒆𝒚 ｆｏｒ ｍｏｒｅ ｉｎｆｏ!
  </p> 
- <p align="center"> OR
+ <p align="center"> O R 
  </p>
- <p align="center"> Sign my ATABook!
+ <p align="center"> Ｓｉｇｎ ｍｙ ＡＴＡＢｏｏｋ!
  </p>
  <p align="center">
   <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
