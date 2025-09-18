@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=slipperysoaps&color=blue&label=Soap+Enjoyers)
-<p align="center"> 
+<p align="right"> 
   <img src="https://cdn.fbsbx.com/v/t59.2708-21/545089790_1808003496757619_8513376020568804498_n.gif?_nc_cat=100&ccb=1-7&_nc_sid=66e727&_nc_ohc=MDvHaNd_l8UQ7kNvwHE840N&_nc_oc=AdlnyrOAOBM8FdLz-DkDVi_O4AQnYaY7wkJiXOJS5ZMPPDTaUWyhwd_WX4bMU7HStFc&_nc_zt=7&_nc_ht=cdn.fbsbx.com&_nc_gid=3lezKRGgggQS_f_c5qJp0A&oh=03_Q7cD3QHtuRMthQ6ReWUR-2LYwrGAxvaK1A5qNauNJv1uDSn_lg&oe=68CE76A8">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
