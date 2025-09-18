@@ -17,6 +17,8 @@
  </p>
  <p align="center"> Ｓｉｇｎ ｍｙ 𝘼𝙏𝘼𝘽𝙤𝙤𝙠!
  </p>
+ <p align="center"> Please don't copy my skin or "persona". That's weird.
+ </p>
  <p align="center">
   <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
  </p>
