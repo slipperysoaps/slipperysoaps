@@ -1,7 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=slipperysoaps&color=blue&label=Soap+Enjoyers)
 <p align="center"> 
-  <img src="https://cdn.fbsbx.com/v/t59.2708-21/545089790_1808003496757619_8513376020568804498_n.gif?_nc_cat=100&ccb=1-7&_nc_sid=66e727&_nc_ohc=MPUMvi_VBnEQ7kNvwFN7tBe&_nc_oc=AdnOKI-u6LLTmg3vSyMwSPig-5uPHotqsIkbRs2yxfn5bu7vsX5XV7chOVmhZbFNkgg&_nc_zt=7&_nc_ht=cdn.fbsbx.com&_nc_gid=GtxQO1poSmAdcA1J5guJDg&oh=03_Q7cD3QGRCSfNrebQzNau5JD2ID8TLSMlygFbATkCWgqNFay5XQ&oe=68C68DA8"/>
-<p align="center">
+  <img src="blob:chrome-untrusted://media-app/6127e308-f25b-4e53-a835-c8b9a5808b6d">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
 <p align="center">
