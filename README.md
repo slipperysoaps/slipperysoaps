@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=slipperysoaps&color=blue&label=Soap+Enjoyers)
-<img src="blob:https://mail.google.com/2cb12db8-fb56-4f2e-88c2-218d04df61af">
+<img src="https://mail.google.com/2cb12db8-fb56-4f2e-88c2-218d04df61af">
 <p align="center"> 
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
