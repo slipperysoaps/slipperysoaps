@@ -15,7 +15,7 @@
  </p> 
  <p align="center"> O R 
  </p>
- <p align="center"> Ｓｉｇｎ ｍｙ 𝘼𝙏𝘼𝘽𝙤𝙤𝙠!
+ <p align="center"> Ｓｉｇｎ ｍｙ 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 ａｎｄ ｌｏｏｋ ａｔ ｍｙ ａｒｔ ｏｎ ｍｙ 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚!!
  </p>
  <p align="center"> Don't be afraid to come up/talk to me! I'm friendly 90% of the time! C + H is encouraged!!
  </p>
