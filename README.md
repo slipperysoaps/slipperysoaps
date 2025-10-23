@@ -19,7 +19,7 @@
  </p>
  <p align="center"> Don't be afraid to come up/talk to me! I'm friendly 90% of the time! C + H is encouraged!!
  </p>
- <p align="center"> And please don't copy my skin or "persona". That's weird.
+ <p align="center"> 𝘈𝘯𝘥 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯 𝘰𝘳 "𝘱𝘦𝘳𝘴𝘰𝘯𝘢". 𝘛𝘩𝘢𝘵'𝘴 𝘸𝘦𝘪𝘳𝘥.
  </p>
  <p align="center">
   <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
