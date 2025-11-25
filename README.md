@@ -28,7 +28,7 @@
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
 <p align="center">
-  <img src="https://external-media.spacehey.net/media/sJisnKRCHfWIapqGFsY_N4_i4QDoMmUC6ziQCHEWAS20=/https://scontent-mia3-2.xx.fbcdn.net/v/t1.15752-9/566548226_1535901047765614_398533101484701270_n.jpg?_nc_cat=103&ccb=1-7&_nc_sid=0024fc&_nc_ohc=Yv3QZopIuYkQ7kNvwGH1L3s&_nc_oc=AdkzTrPfelQJgv6YxgAPE9IW4Ip7UENSfGKmHvqaGKffnYtoQ4r0UJmvgV_Ufuvv7bU&_nc_ad=z-m&_nc_cid=0&_nc_zt=23&_nc_ht=scontent-mia3-2.xx&oh=03_Q7cD3gF75Fklw-YKA5kKZ5yqD0x3vplqJGi2BpA7w5tGBXY6hw&oe=691A43D5"/>
+  <img src="https://media.discordapp.net/attachments/1026607614588616765/1442706437120725012/soap_stamp.jpg?ex=69266892&is=69251712&hm=3288b2ba8025613a6fe8c3d6e8bf8ec2ee224fe3f0fc16774a43c84f79ec8e68&=&format=webp"/>
 </p>
 <p align="center">
   <img src="https://media.discordapp.net/attachments/1026607614588616765/1442705863478612151/sweater.jpg?ex=6926680a&is=6925168a&hm=05d134e3aa0d6f1edf1823fd662f979e803529c696b6b0ddc83a91fefe0598f8&=&format=webp"/>
