@@ -6,16 +6,16 @@
  <p align="center">
  𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝙶𝚒𝚝𝙷𝚞𝚋! 
 </p>
-<p align="center"> Ｍｙ ｎａｍｅ ｉｓ Ｓｏａｐ!
+<p align="center"> My name is Ｓｏａｐ!
  </p>
  <p align="center">
-   Ｉ ｅｎｃｏｕｒａｇｅ ｐｅｏｐｌｅ ｔｏ ｉｎｔｅｒａｃｔ ｗｉｔｈ ｍｅ! Ｉ'ｍ ＵＳＵＡＬＬＹ ｆｒｉｅｎｄｌｙ
+   I encourage people to interact with me! I'm USUALLY friendly!
    </p>
-   <p align="center"> Ｉｆ ｙｏｕ'ｄ ｌｉｋｅ ｍｏｒｅ ｉｎｆｏ ｏｎ ｍｅ (ｌｉｋｅ ａ ＤＮＩ ｌｉｓｔ), ｐｌｅａｓｅ ｃｈｅｃｋ ｏｕｔ ｍｙ 𝙎𝙥𝙖𝙘𝙚𝙃𝙚𝙮!
+   <p align="center"> If you'd like more info on me (like a DNI list), please check out my 𝙎𝙥𝙖𝙘𝙚𝙃𝙚𝙮!
  </p> 
- <p align="center"> Ｉｆ ｙｏｕ'ｒｅ ｊｕｓｔ ｐｏｐｐｉｎｇ ｂｙ, ｐｌｅａｓｅ ｓｉｇｎ ｍｙ 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 ｏｒ ｌｏｏｋ ａｔ ｍｙ 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 ｆｏｒ ｍｙ ａｒｔ!
+ <p align="center"> If you're just popping by, please sign 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art!
  </p>
- <p align="center"> Ｉｆ ｙｏｕ'ｒｅ ｕｎｄｅｒ １６, ｐｌｅａｓｅ ｒｅｆｒａｉｎ ｆｒｏｍ ｈｅａｖｉｌｙ ｉｎｔｅｒａｃｔｉｎｇ ｗｉｔｈ ｍｅ, Ｉ'ｍ １８! Ｉ ＷＩＬＬ ｐｕｓｈ ｙｏｕ ａｗａｙ!
+ <p align="center"> If you're under 16, please refrain from heavily interacting with me. I'm 18 and I WILL push you away.
  </p>
  <p align="center"> Some interests of mine: 𝙃𝙐𝙂𝙀 𝙇𝙄𝙏𝙏𝙇𝙀 𝙉𝙄𝙂𝙃𝙏𝙈𝘼𝙍𝙀𝙎 𝙁𝘼𝙉!!, cats, mice, soaps (of course), music, Supernatural
  </p>
