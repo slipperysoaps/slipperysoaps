@@ -11,13 +11,13 @@
  <p align="center">
    Ｉ ｅｎｃｏｕｒａｇｅ ｐｅｏｐｌｅ ｔｏ ｉｎｔｅｒａｃｔ ｗｉｔｈ ｍｅ! Ｉ'ｍ ＵＳＵＡＬＬＹ ｆｒｉｅｎｄｌｙ
    </p>
-   <p align="center"> If you'd like more info on me (like a DNI list), please check out my 𝙎𝙥𝙖𝙘𝙚𝙃𝙚𝙮!
+   <p align="center"> Ｉｆ ｙｏｕ'ｄ ｌｉｋｅ ｍｏｒｅ ｉｎｆｏ ｏｎ ｍｅ (ｌｉｋｅ ａ ＤＮＩ ｌｉｓｔ), ｐｌｅａｓｅ ｃｈｅｃｋ ｏｕｔ ｍｙ 𝙎𝙥𝙖𝙘𝙚𝙃𝙚𝙮!
  </p> 
- <p align="center"> If you're just popping by, please sign my 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art!
+ <p align="center"> Ｉｆ ｙｏｕ'ｒｅ ｊｕｓｔ ｐｏｐｐｉｎｇ ｂｙ, ｐｌｅａｓｅ ｓｉｇｎ ｍｙ 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 ｏｒ ｌｏｏｋ ａｔ ｍｙ 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 ｆｏｒ ｍｙ ａｒｔ!
  </p>
- <p align="center"> If you're under 16, please refrain from heavily interacting with me, I'm 18! I WILL push you away!
+ <p align="center"> Ｉｆ ｙｏｕ'ｒｅ ｕｎｄｅｒ １６, ｐｌｅａｓｅ ｒｅｆｒａｉｎ ｆｒｏｍ ｈｅａｖｉｌｙ ｉｎｔｅｒａｃｔｉｎｇ ｗｉｔｈ ｍｅ, Ｉ'ｍ １８! Ｉ ＷＩＬＬ ｐｕｓｈ ｙｏｕ ａｗａｙ!
  </p>
- <p align="center"> Some interests of mine: 𝙷𝚄𝙶𝙴 𝙻𝙸𝚃𝚃𝙻𝙴 𝙽𝙸𝙶𝙷𝚃𝙼𝙰𝚁𝙴𝚂 𝙵𝙰𝙽!, cats, mice, soaps (of course), music, Supernatural
+ <p align="center"> Some interests of mine: 𝙃𝙐𝙂𝙀 𝙇𝙄𝙏𝙏𝙇𝙀 𝙉𝙄𝙂𝙃𝙏𝙈𝘼𝙍𝙀𝙎 𝙁𝘼𝙉!!, cats, mice, soaps (of course), music, Supernatural
  </p>
  <p align="center"> 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯 𝘰𝘳 "𝘱𝘦𝘳𝘴𝘰𝘯𝘢". 𝘛𝘩𝘢𝘵'𝘴 𝘸𝘦𝘪𝘳𝘥.
  </p>
