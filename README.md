@@ -13,7 +13,7 @@
    </p>
    <p align="center"> If you'd like more info on me, you're always welcome to ask!
  </p> 
- <p align="center"> If you're just popping by, please sign 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art!
+ <p align="center"> If you're just popping by, please sign my 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art!
  </p>
  <p align="center"> If you're under 16, please refrain from heavily interacting with me. I'm 18 and I WILL push you away.
  </p>
