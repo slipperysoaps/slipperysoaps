@@ -11,7 +11,7 @@
  <p align="center">
    I encourage people to interact with me! I'm USUALLY friendly!
    </p>
-   <p align="center"> If you'd like more info on me (like a DNI list), please check out my 𝙎𝙥𝙖𝙘𝙚𝙃𝙚𝙮!
+   <p align="center"> If you'd like more info on me, you're always welcome to ask!
  </p> 
  <p align="center"> If you're just popping by, please sign 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art!
  </p>
