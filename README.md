@@ -4,22 +4,22 @@
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
  <p align="center">
- 𝐻𝑒𝓁𝓁𝑜!
+ 𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚖𝚢 𝙶𝚒𝚝𝙷𝚞𝚋! 
 </p>
 <p align="center"> Ｍｙ ｎａｍｅ ｉｓ Ｓｏａｐ!
  </p>
  <p align="center">
-   (Ａｌｓｏ ｋｎｏｗｎ ａｓ ｔｈｅ Ｋｎｉｇｈｔ Ｏｆ Ｄｏｃｋｓ)
+   Ｉ ｅｎｃｏｕｒａｇｅ ｐｅｏｐｌｅ ｔｏ ｉｎｔｅｒａｃｔ ｗｉｔｈ ｍｅ! Ｉ'ｍ ＵＳＵＡＬＬＹ ｆｒｉｅｎｄｌｙ
    </p>
-   <p align="center"> Ｐｌｅａｓｅ ｃｈｅｃｋ ｏｕｔ ｍｙ 𝑺𝒑𝒂𝒄𝒆𝑯𝒆𝒚 ｆｏｒ ｍｏｒｅ ｉｎｆｏ!
+   <p align="center"> If you'd like more info on me (like a DNI list), please check out my 𝙎𝙥𝙖𝙘𝙚𝙃𝙚𝙮!
  </p> 
- <p align="center"> O R 
+ <p align="center"> If you're just popping by, please sign my 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art!
  </p>
- <p align="center"> Ｓｉｇｎ ｍｙ 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 ａｎｄ ｌｏｏｋ ａｔ ｍｙ ａｒｔ ｏｎ ｍｙ 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚!!
+ <p align="center"> If you're under 16, please refrain from heavily interacting with me, I'm 18! I WILL push you away!
  </p>
- <p align="center"> Don't be afraid to come up/talk to me! I'm friendly 90% of the time! C + H is encouraged!!
+ <p align="center"> Some interests of mine: 𝙷𝚄𝙶𝙴 𝙻𝙸𝚃𝚃𝙻𝙴 𝙽𝙸𝙶𝙷𝚃𝙼𝙰𝚁𝙴𝚂 𝙵𝙰𝙽!, cats, mice, soaps (of course), music, Supernatural
  </p>
- <p align="center"> 𝘈𝘯𝘥 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯 𝘰𝘳 "𝘱𝘦𝘳𝘴𝘰𝘯𝘢". 𝘛𝘩𝘢𝘵'𝘴 𝘸𝘦𝘪𝘳𝘥.
+ <p align="center"> 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯 𝘰𝘳 "𝘱𝘦𝘳𝘴𝘰𝘯𝘢". 𝘛𝘩𝘢𝘵'𝘴 𝘸𝘦𝘪𝘳𝘥.
  </p>
  <p align="center">
   <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
