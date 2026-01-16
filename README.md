@@ -15,7 +15,7 @@
  </p> 
  <p align="center"> If you're just popping by, please sign my 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art!
  </p>
- <p align="center"> If you're under 16, please refrain from heavily interacting with me. I'm 18 and I WILL push you away.
+ <p align="center"> If you're under 16, please refrain from heavily interacting with me. I'm 19 and I WILL push you away.
  </p>
  <p align="center"> Some interests of mine: 𝙃𝙐𝙂𝙀 𝙇𝙄𝙏𝙏𝙇𝙀 𝙉𝙄𝙂𝙃𝙏𝙈𝘼𝙍𝙀𝙎 𝙁𝘼𝙉!!, cats, mice, soaps (of course), music, Supernatural
  </p>
