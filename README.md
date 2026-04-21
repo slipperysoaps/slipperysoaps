@@ -1,5 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=slipperysoaps&color=blue&label=Soaplings)
-<img src="https://scontent-mia5-1.xx.fbcdn.net/v/t1.15752-9/613436044_1464339248597822_5974640435831639141_n.png?_nc_cat=102&ccb=1-7&_nc_sid=9f807c&_nc_ohc=34TL_GbnNMMQ7kNvwEafMGp&_nc_oc=Ado-xsPJ4W7E6Ee2tp0eMIAWQ-eA7TcScPQGWJN17h5P61MyyuG4kUx9xavVOZM2cAs&_nc_zt=23&_nc_ht=scontent-mia5-1.xx&_nc_ss=7a32e&oh=03_Q7cD4wHhHvz1eXyk08f98XSy85XTGaAL9TdY0ANRjcifAW53mg&oe=69E6E838">
+<img src="https://scontent-mia5-1.xx.fbcdn.net/v/t1.15752-9/613436044_1464339248597822_5974640435831639141_n.png?_nc_cat=102&ccb=1-7&_nc_sid=9f807c&_nc_ohc=vcwCuwMeW_YQ7kNvwExpQZT&_nc_oc=Adq_-vlilZWPk9zMeCLra7S92maR0TLL0FKd1j8hbBKY3ojc3ee-8ij5uOOlVkMhYus&_nc_zt=23&_nc_ht=scontent-mia5-1.xx&_nc_ss=7a2a8&oh=03_Q7cD5AEQ47HyH7QeBOZhkMC6-RmM6sIyrQd8kLbeLoUVcw3I9A&oe=6A0F5638">
 <p align="center"> 
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
@@ -27,15 +27,7 @@
  <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1026607614588616765/1442706437120725012/soap_stamp.jpg?ex=69266892&is=69251712&hm=3288b2ba8025613a6fe8c3d6e8bf8ec2ee224fe3f0fc16774a43c84f79ec8e68&=&format=webp"/>
-</p>
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1026607614588616765/1442705863478612151/sweater.jpg?ex=6926680a&is=6925168a&hm=05d134e3aa0d6f1edf1823fd662f979e803529c696b6b0ddc83a91fefe0598f8&=&format=webp"/>
-</p>
-<p align="center">
-  <img src="https://media.discordapp.net/attachments/1026607614588616765/1442705863172292709/soapdrawing.jpg?ex=69266809&is=69251689&hm=ad7a61b984aaaac85bd2607631aff3b8498831a006e2df8c218f5aff821ec400&=&format=webp"/>
-</p>
+
 
 
 
