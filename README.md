@@ -15,10 +15,17 @@
  <p align="center"> If you're just popping by, please sign my 𝘼𝙏𝘼𝘽𝙤𝙤𝙠 or look at my 𝙎𝙩𝙧𝙖𝙬𝙋𝙖𝙜𝙚 for my art! I also have a 𝙏𝙞𝙠 𝙏𝙤𝙠 account with short videos of my OCs! (I'm new to animating, keep that in mind)
  </p>
  <p align="center"> If you're under 16, please refrain from heavily interacting with me. I'm 19 and I WILL push you away.
+   </p>
+   <p align="center"> 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯 𝘰𝘳 "𝘱𝘦𝘳𝘴𝘰𝘯𝘢". 𝘛𝘩𝘢𝘵'𝘴 𝘸𝘦𝘪𝘳𝘥.
  </p>
- <p align="center"> Some interests of mine: 𝙃𝙐𝙂𝙀 𝙇𝙄𝙏𝙏𝙇𝙀 𝙉𝙄𝙂𝙃𝙏𝙈𝘼𝙍𝙀𝙎 𝙁𝘼𝙉!!, cats, mice, soaps (of course), music, Supernatural
+   <p align="center">
+  <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
  </p>
- <p align="center"> 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘤𝘰𝘱𝘺 𝘮𝘺 𝘴𝘬𝘪𝘯 𝘰𝘳 "𝘱𝘦𝘳𝘴𝘰𝘯𝘢". 𝘛𝘩𝘢𝘵'𝘴 𝘸𝘦𝘪𝘳𝘥.
+ <p align="center">
+ </p>
+ <p align="center"> Music interests: 𝗙𝗮𝗹𝗹 𝗢𝘂𝘁 𝗕𝗼𝘆, Deftones, Ke$ha, McCafferty, Gorillaz, Glass Animals, (There's a lot more.)
+ </p>
+ <p align="center"> Fandom interests: 𝗟𝗶𝘁𝘁𝗹𝗲 𝗡𝗶𝗴𝗵𝘁𝗺𝗮𝗿𝗲𝘀, Reanimal, Mouthwashing, Gorillaz, Eddsworld, Detroit: Become Human, Resident Evil, Dead By Daylight, Rainworld, (There's a lot more.)
  </p>
  <p align="center">
   <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
