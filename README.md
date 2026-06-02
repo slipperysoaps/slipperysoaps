@@ -1,6 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=slipperysoaps&color=blue&label=Soaplings)
-<img src="https://scontent-mia5-1.xx.fbcdn.net/v/t1.15752-9/613436044_1464339248597822_5974640435831639141_n.png?_nc_cat=102&ccb=1-7&_nc_sid=9f807c&_nc_ohc=vcwCuwMeW_YQ7kNvwExpQZT&_nc_oc=Adq_-vlilZWPk9zMeCLra7S92maR0TLL0FKd1j8hbBKY3ojc3ee-8ij5uOOlVkMhYus&_nc_zt=23&_nc_ht=scontent-mia5-1.xx&_nc_ss=7a2a8&oh=03_Q7cD5AEQ47HyH7QeBOZhkMC6-RmM6sIyrQd8kLbeLoUVcw3I9A&oe=6A0F5638">
-<p align="center"> 
+<img src="https://scontent-mia5-1.xx.fbcdn.net/v/t1.15752-9/613436044_1464339248597822_5974640435831639141_n.png?_nc_cat=102&ccb=1-7&_nc_sid=9f807c&_nc_ohc=DyT3WAbijPgQ7kNvwFx6ep3&_nc_oc=Adr9XI923yLVw9WA8MLtBH4SrTkRytdjbchQs7zCFMH7stmIcmohIoSy3xvTTq050Do&_nc_zt=23&_nc_ht=scontent-mia5-1.xx&_nc_ss=7b6a8&oh=03_Q7cD5gFe-DwsGfS0CGVT0oM1CuvPobBTL0gmykARV2sBx1xoVw&oe=6A46B538"> 
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
  <p align="center">
@@ -30,6 +29,8 @@
  <p align="center">
   <img src="https://media.discordapp.net/attachments/1432548752731668492/1509974425322127422/blinkiesCafe-QP_1.gif?ex=6a2066c4&is=6a1f1544&hm=67cc51aa1eccab64c0f0c961e85df7366610b0a4de3a83d25065c7b6ddfb5821&="/>
 </p>
+ <p align="center"> (Blinkie made by @spotpup)
+ </p>
 
 
 
