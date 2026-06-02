@@ -27,6 +27,9 @@
  <p align="center">
   <img src="https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
 </p>
+ <p align="center">
+  <img src="https://media.discordapp.net/attachments/1432548752731668492/1509974425322127422/blinkiesCafe-QP_1.gif?ex=6a2066c4&is=6a1f1544&hm=67cc51aa1eccab64c0f0c961e85df7366610b0a4de3a83d25065c7b6ddfb5821&="/>
+</p>
 
 
 
