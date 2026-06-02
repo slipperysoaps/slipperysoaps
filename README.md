@@ -21,8 +21,6 @@
    <p align="center">
   <img src="[https://adriansblinkiecollection.neocities.org/dividers/sparkles6.gif"/>
  </p>
- <p align="center">
- </p>
  <p align="center"> Music interests: 𝗙𝗮𝗹𝗹 𝗢𝘂𝘁 𝗕𝗼𝘆, Deftones, Ke$ha, McCafferty, Gorillaz, Glass Animals, (There's a lot more.)
  </p>
  <p align="center"> Fandom interests: 𝗟𝗶𝘁𝘁𝗹𝗲 𝗡𝗶𝗴𝗵𝘁𝗺𝗮𝗿𝗲𝘀, Reanimal, Mouthwashing, Gorillaz, Eddsworld, Detroit: Become Human, Resident Evil, Dead By Daylight, Rainworld, (There's a lot more.)
